@@ -9,7 +9,7 @@
 
 <img src="https://files.mdnice.com/user/13938/918e9612-c021-4c6d-b634-5091806ed8a0.JPG" width="400px">
 
-最后，欢迎各位加盟我们课题组！ [课题组网站](http://www.plantimmunity.cn/index.html)
+最后，欢迎各位加盟我们课题组！ [课题组网站](https://plantimmunity.hzau.edu.cn/)
 
 # 如何提问
 关于如何提问很多老师已经做了相关的推文，我觉得都写的非常好，放在这里。
